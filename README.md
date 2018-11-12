@@ -1,6 +1,6 @@
 #### gbfan-club- :seven::nine:
 ![](https://img.gimme.fun/emoji/1f47e.png) ![Status: **Not yet implemented**](http://placehold.it/350x65/FF0000/FFFF00.png&text=GBFan+Club+79)  
-#### :hibiscus:GAZA Book Fan Club (*Sci-fi* :rocket: :satellite: ![](http://fun.resplace.net/Emoticons/Scifi/Cyborg.gif) ![](http://fun.resplace.net/Emoticons/Scifi/matrix.gif) & *Fantasy* 🧚‍♂️ 🧙‍♂️ 🧝‍♀️  ) 
+#### GAZA Book Fan Club (*Sci-fi* :rocket: :satellite: ![](http://fun.resplace.net/Emoticons/Scifi/Cyborg.gif) ![](http://fun.resplace.net/Emoticons/Scifi/matrix.gif) & *Fantasy* 🧚‍♂️ 🧙‍♂️ 🧝‍♀️  ) 
         
 <h6>
 
